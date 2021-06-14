@@ -1,5 +1,5 @@
 # mohamed saied
 # omar khaled
-# omar ezzat
+# Omar Ezzat
 # almontaserbellah ahmed
 # omar mosatafa
